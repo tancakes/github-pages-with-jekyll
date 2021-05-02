@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+David Tan: "Fuck Bitches Get Money"
 ---
 
-I'm glad you are here. I plan to talk about ...
+Welcome to my blog, fuck bitches get money.
